@@ -1,7 +1,7 @@
 ## Hi, I'm Nathaniel Valenzuela 👋
 
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I’m currently working on anything<br>👯 I’m looking to collaborate on anything<br>🤝 I’m looking for help with anything<br>🌱 I’m currently learning everything<br>💬 Ask me about anything<br>⚡ Fun fact is everything
 
 
 
